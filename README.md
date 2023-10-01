@@ -6,3 +6,4 @@ Meu nome é Lucas Rosa 💜
 - Estou estudando com o Alura
 - Não entendo muito sobre o JavaScript
 - Uso esse espaço para organizar e compartilhar meus projetos desenvolvidos
+- Estou mais focado no HTML e CSS
