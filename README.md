@@ -1,9 +1,14 @@
+![](https://media.tenor.com/rNsbs4QIE-UAAAAM/ordem-paranormal-estrangeiro.gif)
 ### Bem Vindo ao meu perfil 🥇
 
-Meu nome é Lucas Rosa 💜
+Meu nome é Lucas Rosa ❤️
 
-- Eu estou aprendendo a mexer no GitHub
-- Estou estudando com o Alura
-- Não entendo muito sobre o JavaScript
-- Uso esse espaço para organizar e compartilhar meus projetos desenvolvidos
-- Estou mais focado no HTML e CSS
+- Estou estudando com o [Alura](https://www.alura.com.br/)
+- Estou me desenvolvendo na linguagem HTML e CSS
+- Uso esse espaço para me organizar e compartilhar meus projetos desenvolvidos
+
+### Você pode entrar em contato comigo 📧
+
+kingyurt@gmail.com / @lkx.lucas.wy
+
+![](https://media.tenor.com/9r-v6Ot28lkAAAAC/gal-gal-sal.gif)
