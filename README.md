@@ -1,4 +1,4 @@
-![](https://media.tenor.com/rNsbs4QIE-UAAAAM/ordem-paranormal-estrangeiro.gif)
+
 ### Bem Vindo ao meu perfil 🥇
 
 Meu nome é Lucas Rosa ❤️
