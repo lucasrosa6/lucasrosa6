@@ -3,7 +3,6 @@
 
 Meu nome é Lucas Rosa ❤️
 
-- Estou estudando com o [Alura](https://www.alura.com.br/)
 - Estou me desenvolvendo na linguagem HTML e CSS
 - Uso esse espaço para me organizar e compartilhar meus projetos desenvolvidos
 
