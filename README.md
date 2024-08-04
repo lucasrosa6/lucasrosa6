@@ -8,6 +8,6 @@ Meu nome é Lucas Rosa ❤️
 
 ### Você pode entrar em contato comigo 📧
 
-kingyurt@gmail.com / @lkx.lucas.wy
+lucas.do.nascimento.rosa0@gmail.com
 
-![](https://media.tenor.com/9r-v6Ot28lkAAAAC/gal-gal-sal.gif)
+![]([https://media.tenor.com/9r-v6Ot28lkAAAAC/gal-gal-sal.gif](https://tenor.com/pt-BR/view/fire-line-fire-line-gif-26781801))
